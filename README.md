@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @404Hero
-- 👀 I’m interested in reading books, playing soccer, and coding
+- 👀 I’m interested in reading books, music, and coding
 - 🌱 I’m currently learning Systems Development
 - 💞️ I’m looking to collaborate wiht professionals in the industry and improve my skills
 - 📫 How to reach me__instagram @xolocya 
